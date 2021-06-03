@@ -1,5 +1,5 @@
 
-Here are some thiings I engjoy:
+Here are some thiings I enjoy:
 
 - ⛳️ 🏌🏻‍♂️ Love to play golf 
 - coaching my sons travel ⚾️ team
